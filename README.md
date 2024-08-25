@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GitNinja11
 - 👀 I’m interested in learning new skills
 - 🌱 I’m currently learning web-D
-- 💞️ I’m looking to collaborate on web-D or Graphic designing projects.
+- 💞️ I’m looking to collaborate on web-D.
 - 📫 How to reach me:- vaishnavinewalkar04@gmail.com
 -
 
